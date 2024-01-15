@@ -19,4 +19,4 @@ As a Lab Aide at ASU, I designed test setups, created CAD drawings, and used Lab
 Looking Ahead:
 Eager to contribute my creativity and expertise, I'm seeking opportunities that align with my innovative spirit. Let's connect and explore exciting possibilities!
 
-LinkedIn: Ujjawal Jha (https://www.linkedin.com/in/ujjawaljha/) | GitHub: Portfolio
+LinkedIn: Ujjawal Jha (https://www.linkedin.com/in/ujjawaljha/) 
